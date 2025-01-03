@@ -1,0 +1,1 @@
+# fairpari-registracia-2025-
